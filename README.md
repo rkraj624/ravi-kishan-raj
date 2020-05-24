@@ -1,2 +1,0 @@
-# ravi-kishan-raj
-rkraj
